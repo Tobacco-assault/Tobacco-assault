@@ -1,6 +1,5 @@
 ### Hi there, I'm Tobacco-assault 👋
 
-<img src="https://komarev.com/ghpvc/?username"Tobacco-assault" /><br>
 
 ### I'm good in:
 - Absolutely nothing
